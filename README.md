@@ -9,5 +9,5 @@ LBRY/Odysee: https://odysee.com/@henrymelt:1
 Twitter: https://twitter.com/hmm_2525
 
 -------------------------------------------------------
-*DigitalOcean Referrall: https://m.do.co/c/17d1c4193afc
-*Vultr Referrall: https://www.vultr.com/?ref=8762167-6G
+*DigitalOcean Referral: https://m.do.co/c/17d1c4193afc
+*Vultr Referral: https://www.vultr.com/?ref=8762167-6G
