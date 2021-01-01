@@ -10,4 +10,4 @@ Twitter: https://twitter.com/hmm_2525
 
 -------------------------------------------------------
 *DigitalOcean Referrall: https://m.do.co/c/17d1c4193afc
-*Vultr Referrall: https://www.vultr.com/?ref=8762165
+*Vultr Referrall: https://www.vultr.com/?ref=8762167-6G
