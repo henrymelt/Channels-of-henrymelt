@@ -12,4 +12,3 @@ Parler: https://parler.com/profile/hmmeow/
 
 
 -------------------------------------------------------
-*Vultr Referral: https://www.vultr.com/?ref=8762167-6G
