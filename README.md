@@ -13,8 +13,7 @@ LBRY/Odysee: https://odysee.com/@henrymelt:1
 
 Twitter: https://twitter.com/hmm_2525
 
-Parler: https://parler.com/profile/hmmeow/
-
+Google Developrs: https://g.dev/henrymelt
 
 -------------------------------------------------------
 
